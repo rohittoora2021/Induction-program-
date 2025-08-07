@@ -12,7 +12,7 @@ Name - Rohit     Branch - ECE
 ># Day-4
 >### On day 4 our senior taught us about motor sports it was great experience i never thought of it snd in the end Shaffy Makkar mam taught us about millets and their importance .
 >#DAy-5
->>it was our fifth dsy in GNDEC and i started to like the experiences,life lessons and useful tips and tricks we get to learn about . In morning we get our first topic covered by Dr. Parminder Singh on Dean student Welfare . then chief guest Manpreet Singh arrived and he talked about importance of fitness in our daily life it was such a great experienceand many students ask him about their doubts in exercising and diet he answered all students with grat and meaningful answers .then Brigadier P.s cheema sir motivated us .
+>>it was our fifth day in GNDEC and i started to like the experiences,life lessons and useful tips and tricks we get to learn about . In morning we get our first topic covered by Dr. Parminder Singh on Dean student Welfare . then chief guest Manpreet Singh arrived and he talked about importance of fitness in our daily life it was such a great experienceand many students ask him about their doubts in exercising and diet he answered all students with grat and meaningful answers .then Brigadier P.s cheema sir motivated us .
 
 
 
